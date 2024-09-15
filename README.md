@@ -1,2 +1,2 @@
 # Learning
-Try to learn something, just though the door!
+Try to learn something, just through the door!
